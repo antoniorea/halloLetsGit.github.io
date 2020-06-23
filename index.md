@@ -25,3 +25,5 @@ As Carl Schmitt said:
 
 > La politica es
 > la distincion entre amigo y enemigo.
+
+![Bild meines Charakters](https://sites.google.com/site/pelopicozoo/_/rsrc/1467132585930/animales-de-la-sabana/leon/LEON.jpg)
