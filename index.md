@@ -13,3 +13,10 @@ por eso todos los dias veo Salvame en Telecinco
 un canal de TV de Mediaset.
 Te aconsejo que tu tambien lo veas todos los dias de 
 lunes a viernes.
+
+## DESCRIPCION DE MI CARACTER
+
+* Guapo
+* Atrevido
+* Curioso
+* Culto
