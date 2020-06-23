@@ -20,3 +20,8 @@ lunes a viernes.
 * Atrevido
 * Curioso
 * Culto
+
+As Carl Schmitt said:
+
+> La politica es
+> la distincion entre amigo y enemigo.
